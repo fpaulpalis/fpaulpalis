@@ -3,10 +3,13 @@ Well, I type fast. I guess?
 
 ## Profile Links
 [Monkeytype](https://monkeytype.com/profile/fpapalis)
+![image](https://github.com/user-attachments/assets/001f14c7-122c-416f-b3a3-8657c132d55e)
 
 [10FastFingers](https://10fastfingers.com/user/3958665/)
+![image](https://github.com/user-attachments/assets/36dd84bf-5e36-4150-929b-e9f6578e7ef7)
 
 [Typeracer](https://data.typeracer.com/pit/profile?user=palisfpauul)
+<a href="https://data.typeracer.com/pit/profile?user=palisfpauul&ref=badge" target="_top"><img src="https://data.typeracer.com/misc/badge?user=palisfpauul" border="0" alt="TypeRacer.com scorecard for user palisfpauul"/></a>
 
 ---
 ## Typing.com:
