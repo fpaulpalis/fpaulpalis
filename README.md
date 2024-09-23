@@ -3,8 +3,11 @@ Well, I type fast. I guess?
 
 ## Profile Links
 [Monkeytype](https://monkeytype.com/profile/fpapalis)
+
 [10FastFingers](https://10fastfingers.com/user/3958665/)
+
 [Typeracer](https://data.typeracer.com/pit/profile?user=palisfpauul)
+
 ---
 ## Typing.com:
 ![image](https://github.com/user-attachments/assets/dba1fe76-6389-4b53-a0a5-d6b7f7d406f9)
